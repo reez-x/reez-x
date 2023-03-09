@@ -6,4 +6,4 @@
 - 💬 Ask me about Anything about IT or Computer science
 - 📫 How to reach me: Telegram : @reezxyz
 - 😄 Pronouns: He, Him
-- ⚡ Fun fact: Fvck off
+- ⚡ Fun fact: I hate technologies they r brainless
